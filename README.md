@@ -1,2 +1,1 @@
 # VinzzVipp
-Semoga nyaman
